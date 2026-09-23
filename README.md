@@ -226,4 +226,4 @@ Call of Duty: Infinite Warfare is available as a full free version with all feat
 Don't miss out on the action! Download Call of Duty: Infinite Warfare today and join the battle!
 
 ---
-**Last updated:** 2026-09-23 06:57:19 UTC
+**Last updated:** 2026-09-23 12:31:21 UTC
